@@ -15,7 +15,7 @@ If you haven’t already, you can still try to restore your Google Account.
 
 English (United States)
 
-HelpPrivacyTerms what appeal reason do i paste on hereTell us why your account should be restored
+HelpPrivacyTerms what appeal reason do i paste on here. Tell us why your account should be restored
 
 d3m13n.capsulecraft@gmail.com
 
